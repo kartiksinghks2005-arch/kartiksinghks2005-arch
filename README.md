@@ -9,7 +9,7 @@
 
 ## 🌐 Connect With Me:
 
-* 💼 LinkedIn: https://linkedin.com/in/Kartik-Singh
+* 💼 LinkedIn: [https://linkedin.com/in/Kartik-Singh](https://www.linkedin.com/in/kartik-singh-66a777293)
 * 📧 Email: [kartiksinghks2005@gmail.com](mailto:kartiksinghks2005@gmail.com)
 
 
